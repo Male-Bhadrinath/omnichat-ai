@@ -164,9 +164,8 @@ This platform directly empowers:
 
 ## 📬 Contact
 
-Built for **SummerShip 2026** by [Your Name]  
-📧 your-email@example.com  
-🔗 linkedin.com/in/your-profile
+Built for **SummerShip 2026** by [MALE BHADRINATH]  
+📧bhadrinath099@gmail.com  
 
 ---
 
